@@ -1,1 +1,0 @@
-# Stat_redesign_and_main_project
